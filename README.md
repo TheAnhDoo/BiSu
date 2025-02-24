@@ -1,2 +1,4 @@
 # BiSu
 Bi &amp; Su Project
+
+# ANH YEU EM I LOVE U MOAH MOAH LETS DO THIS TOGETHER <3
